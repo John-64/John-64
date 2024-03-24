@@ -1,2 +1,2 @@
 ### Hi, i'm Giovanni Manfredi and i'm a tech entusiast. 👋
-I'm actually got the master degree from Uneiversità di Salerno with tha maximum vote (110L) and i'm currently studying cyber security.
+I received my bachelor's degree from the University of Salerno with highest honors (110 cum Laude) and am currently studying cyber security. 😊
