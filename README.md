@@ -5,4 +5,3 @@
 - 📍 Based in Italy
 
 Want to know more about me? Check out my [website](https://giovannimanfredi.com/)
-<br>*(currently a work in progress — updates coming soon!)*
